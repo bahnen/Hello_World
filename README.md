@@ -1,2 +1,2 @@
 # Hello_World
-Practice Repository
+My name is Ben Ahnen and I am a Senior enrolled at the University of Iowa Tippie College of Business majoring in Business Analytics, while also working toward my M.S. in Business Analytics. Within Tippie, I am involved in various student organizations that have helped me realize my professional aspirations. While in pursuit of my degree, I have also managed to work 20+ hours/week, as well as serve on multiple executive boards for the organizations I am involved with. 
